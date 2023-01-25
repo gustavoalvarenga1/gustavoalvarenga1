@@ -1,4 +1,4 @@
-# Olá, me chamo Gustavo Alvarenga 👋
+# Olá, me chamo Gustavo Alvarenga...
 </br>
 
 ### 💻 Auxiliar de Suporte Técnico [Auto Geral Autopeças LTDA](https://www.linkedin.com/company/autogeralautopecas/mycompany/)
